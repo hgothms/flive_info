@@ -1,1 +1,0 @@
-Ici les mentions légales
